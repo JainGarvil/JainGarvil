@@ -11,5 +11,5 @@ Machine Learning Basics
 Database Management
 
 📫 Get in Touch: 📧 Email: garviljain8@gmail.com 🔗 LinkedIn: https://www.linkedin.com/in/garvil-jain/ 
-
+📞 Mobile: 8107035005
 🌐 Check out my latest projects and contributions below! 👇
