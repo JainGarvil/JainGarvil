@@ -32,7 +32,7 @@ My work spans across Business Intelligence, Data Analysis, and Strategic Reporti
 ---
 
 ### 🤝 Let’s Connect:
-- 📧 Email: [garvil.j33@gmail.com](mailto:garvil.j33@gmail.com)  
+- 📧 Email: [garviljain9@gmail.com](mailto:garviljain9@gmail.com)  
 - 🔗 LinkedIn: [linkedin.com/in/garvil-jain](https://www.linkedin.com/in/garvil-jain/)  
 - 📱 Mobile: +91 81070 35005 / 96600 45677  
 
